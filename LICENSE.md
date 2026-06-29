@@ -1,4 +1,4 @@
-# 
+# Sécurisé Inkscape filtres pour Mac OS | Gratuit Inkscape filtres pour PC Windows. Avec palette de couleurs et moteur de rendu — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
